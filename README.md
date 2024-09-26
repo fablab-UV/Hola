@@ -1,1 +1,1 @@
-### Estas despedido
+### Estas recontratado :D
